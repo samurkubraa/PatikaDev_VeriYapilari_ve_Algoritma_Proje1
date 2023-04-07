@@ -1,0 +1,1 @@
+# PatikaDev_VeriYapilari_ve_Algoritma_Proje1
